@@ -6,7 +6,7 @@ originated http://www.marthastewart.com/1146817/lamb-cake-white-chocolate-butter
 | --- | --- |
 | 1 | Unsalted butter, softened, for molds |
 | 2 | cups plus tablespoons all-purpose flour, plus more for dusting |
-| 1 | 2/3 cups sugar |
+| 1  2/3 | cups sugar |
 | 1 1/2 | teaspoons baking soda |
 | 3/4 |teaspoon baking powder |
 | 3/4 |teaspoon salt |
